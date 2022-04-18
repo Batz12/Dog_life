@@ -4,7 +4,7 @@ Fingers of cold air swirled around the street, empty like souls of the people wh
  ------------------------------------------------------THE NIGHTMARE BEGINS-------------------------------------------------------------------------------------
 Morning, 6:30am:
 
-Mark, a gifted surgeon and experimental cryo-tech fanatic, woke up to the gentle warm brush of the sun across his face. Another day to save lives and make the world a little bit better. He pulled out a clean blue cotton shirt, a simple netted pattern;a light, smooth texture. Each square of the shirt independent, similar to each other but imperfect, knitted perfectly into a fabric that works. Each knit calculated and precise, a shirt that feels the wearer with confidence and contentment. The shirt looks regular but a heightened awareness makes these observations apparent. He wore the shirt along with simple jeans and the metallic silver mechanical watch gifted to him by his father and stepped out of his home.
+Mark, a gifted surgeon and experimental cryo-tech fanatic, woke up to the gentle warm brush of the sun across his face. Another day to save lives and make the world a little bit better. He pulled out a clean blue cotton shirt, a simple netted pattern;a light, smooth texture. Each square of the shirt independent, similar to each other but imperfect, knitted perfectly into a fabric that works. Each knit calculated and precise, a shirt that fills the wearer with confidence and contentment. The shirt looks regular but a heightened awareness makes these observations apparent. He wore the shirt along with simple jeans and the metallic silver mechanical watch gifted to him by his father and stepped out of his home.
 
 Start of the work day, 9:00am:
 
